@@ -1,0 +1,1 @@
+Sou novo por aqui vindo de uma área completamente diferente, mas resolvi assumir o compromisso de aprender a programar sendo o Python a linguagem que quero aprender, ainda estou bastante perdido mas creio que é só questão de tempo e dedicação para me tornar um bom profissional
